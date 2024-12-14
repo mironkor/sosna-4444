@@ -3,3 +3,4 @@
 хочешиш сосону
 держи
 ![images (1)](https://github.com/user-attachments/assets/4568fa82-bef9-4937-a8f4-f2ecb411a779)
+[кто прочитает тот дядюшка ауф](ты дамовёнок.md)
